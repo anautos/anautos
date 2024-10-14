@@ -6,6 +6,6 @@
 - 🤔 I’m looking for help with ... Buys me coffee
 - 💬 Ask me about ... Anything feel free
 - 📫 How to reach me: ... Mension me
-- 😄 Pronouns: ... ah-NAH-tos
+- 😄 Pronouns: ... he/Him
 - ⚡ Fun fact: ... I'm an old soldier with 30 years of programming experience, but I’m actually a university student.
 
